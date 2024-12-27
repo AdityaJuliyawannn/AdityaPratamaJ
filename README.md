@@ -1,2 +1,2 @@
-# AdityaPratamaJ
+# Aditya Pratama Juliyawan
 About Me
